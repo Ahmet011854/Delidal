@@ -1,0 +1,2 @@
+# Delidal
+Yeni bölüm 
